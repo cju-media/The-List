@@ -1,3 +1,7 @@
+##8-11-26
+
+Got **The List** working on my phone again. I also moved it to a new repo so I do not have to pull and push the entire website every time I make an update here. I plan on being more consistent, since I can also be on my phone. Also I’ve been in a big productive run recently so I have the urge to write some more. 
+
 ## 7-5-26 
 Fun weekend at AX with Tiffany. Always fun to see all the cute stuff they have.
 
