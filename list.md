@@ -1,3 +1,10 @@
+## 8-13-26
+I am back. On a streak. Yahoo.
+
+I had my lesson today. So fruitful. Loved it. We talked a lot about music despite not looking at too much of my own. I like where we started and I already have some ideas to get started with.
+
+I really remember why I went into this field in the first place. For the first time in a long time I have some energy and excitement about writing music. Like I want to stay up and work on something. I can't remember the last time I had this energy and ideas. I am going in circles. Partly because I am tired. I should sleep. Good night.
+
 ## 8-12-26
 I am taking compositon lessons. I found a composer I really like, he's the same age as me funily enough but he has this tight interaction between players and electronics which is something I am looking to do with my music. I have been on a big productivity this past week. I am not sure what changed in my psyche but I have put a ton of work in to building some awesome max externals that I have always dreamed about: jit.rtmp, jit.airplay and jit.jweb, soon, maybe. I been working consistently on a piece I think everyday this week. I just get bored and have nothing else to do. The last distraction I have on my phone is Youtube. I cannot help myself from scrolling and getting distracted finding a video. I am THINKING of getting rid of the app on my phone. But I listen to Youtube when I drive, I find new music, I learn things. This one social media app gives me A LOT of benefits where every other one just did not provide anything for me. Last thing I need to do is read consistently. I am not sure why I am so anxious about reading. It's almost maddening like just pick up the book loser!!! 
 
